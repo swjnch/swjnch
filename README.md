@@ -10,5 +10,5 @@
 
 👯 I’m looking to collaborate on any kind of data projects.
 
-📫 How to reach me: [Linkedln](www.linkedin.com/in/sowjanya-chilaka), [Email](swjnchilaka@gmail.com)
+📫 How to reach me: [Email](swjnchilaka@gmail.com)
 
